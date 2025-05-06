@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with my resourcefulness for new skills
 - 📫 How to reach me fatimacrodrigues2009@live.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: traveling, camping, (the)sea
+- ⚡ Fun fact: traveling, camping, (a)sea
 
 <!---
 mfcrodrigues/mfcrodrigues is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
